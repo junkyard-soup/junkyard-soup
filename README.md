@@ -16,7 +16,10 @@
 <p align="center">
   im mainly sitting near harbor / projmoon area! i welcome almost all pairings!!
 </p>
-<p>
-  please please read my carrd before following/friending! if you find yourself in my dni after friending, just unfriend / block (up to you ^_°)
+<p align="center">
+ please please read my carrd before following/friending!
+</p>
+<p align="center">
+ if you find yourself in my dni after friending, just unfriend / block (up to you ^_°)
 </p>
  <img width= "500" src="border2.webp">
