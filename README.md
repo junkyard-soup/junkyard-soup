@@ -1,8 +1,11 @@
 <div align=center>
 <p>
-  remaking my readme check my fluffle in the meantime^_^!
+ ʚ 𝙨𝙤𝙪𝙥 ! 18 ⊹ vn / eng ɞ
+  
+  projmoon ⠀˳ ⠀crob⠀ ˳ ⠀sky ⠀˳⠀ utdr
 
-![](IMG_3454.GIF) ![](https://komarev.com/ghpvc/?username=junkyard-soup&label=meow&color=5bffde&style=plastic)
+![](https://komarev.com/ghpvc/?username=junkyard-soup&label=jades.&color=5bffde&style=plastic)
+
 <img src="a.png" width="3027" height="1677">
 </p>
 </div>
