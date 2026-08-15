@@ -1,7 +1,9 @@
 <div align=center>
 <p>
+ 
+<sub>each of these stamps lead to a link</sub>
 
-![](stamp(2).png)  ![](stamp(3).png)  ![](stamp(4).png)
+<img src="stamp (2).png">  <img src="stamp (3).png"> <img src="stamp (4).png">
  
  ʚ 𝙨𝙤𝙪𝙥 !  ⠀18  ⠀⊹ ⠀ vn / eng ɞ
   
