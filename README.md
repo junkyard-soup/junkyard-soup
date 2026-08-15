@@ -1,6 +1,9 @@
 <div align=center>
 <p>
- ʚ 𝙨𝙤𝙪𝙥 ! 18 ⊹ vn / eng ɞ
+
+![](stamp(2).png)  ![](stamp(3).png)  ![](stamp(4).png)
+ 
+ ʚ 𝙨𝙤𝙪𝙥 !  ⠀18  ⠀⊹ ⠀ vn / eng ɞ
   
   projmoon ⠀˳ ⠀crob⠀ ˳ ⠀sky ⠀˳⠀ utdr
 
