@@ -11,6 +11,8 @@
   
   projmoon ⠀˳ ⠀crob⠀ ˳ ⠀sky ⠀˳⠀ utdr
 
+  i won't follow back unless we're friends on pt!
+
 ![](https://komarev.com/ghpvc/?username=junkyard-soup&label=jades.&color=5bffde&style=plastic)
 
 <img src="a.png" width="3027" height="1677">
