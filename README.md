@@ -3,18 +3,14 @@
  
 <sub>each of these stamps lead to a link</sub>
 
-<a href=https://honglumonger.atabook.org><img src="stamp (2).png"></a>
-<a href=https://fluffle.cc/kcorplu><img src="stamp (3).png"></a>
-<a href=https://oupywoupy.carrd.co><img src="stamp (4).png"></a>
- 
- ʚ 𝙨𝙤𝙪𝙥 !  ⠀18  ⠀⊹ ⠀ vn / eng ɞ
-  
-  projmoon ⠀˳ ⠀crob⠀ ˳ ⠀sky ⠀˳⠀ utdr
+<a href=https://honglumonger.atabook.org><img src="stamp (7).png"></a>
+<a href=https://fluffle.cc/kcorplu><img src="stamp (5).png"></a>
+<a href=https://oupywoupy.carrd.co><img src="stamp (8).png"></a>
 
-  revamp soon 👀
+<i>Happiness, Wrath, Sorrow, and Joy . </i>
 
 ![](https://komarev.com/ghpvc/?username=junkyard-soup&label=birds.&color=526697&style=plastic)
 
-<img src="a.png" width="3027" height="1677">
+<img src="Untitled638_20261019011340.PNG" width="1800" height="845">
 </p>
 </div>
