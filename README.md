@@ -13,7 +13,7 @@
 
   revamp soon 👀
 
-![](https://komarev.com/ghpvc/?username=junkyard-soup&label=jades.&color=5bffde&style=plastic)
+![](https://komarev.com/ghpvc/?username=junkyard-soup&label=birds.&color=526697&style=plastic)
 
 <img src="a.png" width="3027" height="1677">
 </p>
