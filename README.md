@@ -9,7 +9,7 @@
 
 <i>Happiness, Wrath, Sorrow, and Joy . </i>
 
-<img src="dreamer.gif">![](https://komarev.com/ghpvc/?username=junkyard-soup&label=birds.&color=526697&style=plastic)<img src="mystic.gif">
+<img src="dreamer.gif">⠀![](https://komarev.com/ghpvc/?username=junkyard-soup&label=birds.&color=526697&style=plastic)⠀<img src="mystic.gif">
 
 <img src="Untitled638_20261019011340.PNG" width="1800" height="845">
 </p>
