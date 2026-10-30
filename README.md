@@ -11,6 +11,6 @@
 
 <img src="dreamer.gif">⠀![](https://komarev.com/ghpvc/?username=junkyard-soup&label=birds.&color=526697&style=plastic)⠀<img src="mystic.gif">
 
-<img src="Untitled638_20261019011340.PNG" width="1800" height="845">
+<img src="Untitled668_20261031013222.png" width="60%" height="60%">
 </p>
 </div>
